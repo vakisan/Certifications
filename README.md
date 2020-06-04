@@ -1,1 +1,1 @@
-#Certifications - Summary
+Certifications - Summary
